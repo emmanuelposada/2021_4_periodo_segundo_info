@@ -1,1 +1,0 @@
-# 2021_4_periodo_segundo_info
